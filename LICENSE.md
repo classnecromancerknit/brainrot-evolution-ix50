@@ -1,4 +1,4 @@
-#  
+#  custom Script for brainrot evolution offers the most advanced brainrot evolution Script, with teleport and infinite resources. Perfect for dominating
 
 
 
